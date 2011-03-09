@@ -1,4 +1,3 @@
 du er en løk
 
-
-knok knok
+jeg er en ku
